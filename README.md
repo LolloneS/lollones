@@ -28,7 +28,7 @@ An Italian computer scientist with a passion for visiting (and saving) our plane
 
 
 "Someone is sitting in the shade today because someone planted a tree a long time ago."
-- No need to specify 😬
+― No need to specify 😬
 
 ### 📱 Contacting me
 
